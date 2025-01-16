@@ -1,1 +1,1 @@
-Submission deadline: January 23
+Submission deadline: January 23 | 22:00
